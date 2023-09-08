@@ -4,13 +4,10 @@
 
 
 >Teacher： 蔡芸琤 Tsai, Yun-Cheng 老師
--------------
 
 >Name：林立涵 Ariel
--------------
 
 >Department & Grade： NTNU THARD 碩二
--------------
 
 筆記區
 -------------
