@@ -17,8 +17,8 @@
 
 作業區
 -------------
-## HW0
-[WH0](https://docs.google.com/presentation/d/1CP0D92DA8Ae8oyIKSquqUuTUpVqwLGT-14T32l9pf5U/edit#slide=id.g2410febba22_0_9)
+## week1
+[WH0](https://youtu.be/JgQapv8ffVU)
 
 專題區
 -------------
