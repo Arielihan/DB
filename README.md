@@ -16,6 +16,11 @@
 [影片](https://www.youtube.com/watch?v=idhUbF1req4)
 ### week 2
 [PPT](https://docs.google.com/presentation/d/1amn8pDX2Wx4N6ZjzhCGoQFJH4DqaRcQ2DJAdg3hbIrA/edit#slide=id.g23dd2219a46_0_124)
+[影片](https://www.youtube.com/watch?v=qGaGgdm_YtY&feature=youtu.be)
+### week3
+[企業參訪](https://www.facebook.com/pecu.tsai/posts/10222321136844048)
+### week4
+[PPT](https://docs.google.com/presentation/d/1053jwkOvLAdeQCDUJKq-c0NwxB3jOqlkiL244y0DPro/edit#slide=id.g23dd2219a46_0_124)
 
 作業區
 -------------
