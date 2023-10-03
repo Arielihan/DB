@@ -31,7 +31,8 @@
 [WH0](https://youtu.be/JgQapv8ffVU)
 [HW1](https://youtu.be/00ySsqyVRBU)
 [HW2](https://youtu.be/YpIS8dT8Blo)
-[HW3](https://youtu.be/Tjrp12wYKkU)
+[HW3(試錯版)](https://youtu.be/Tjrp12wYKkU)
+[HW3(成功版)](https://youtu.be/H5pCwzvXNrA)
 
 專題區
 -------------
