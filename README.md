@@ -25,6 +25,8 @@
 ### week5
 [PPT](https://docs.google.com/presentation/d/1J0ASP97LgjTQeKqTdm1vRhxh6MGya-C1D-8w7ykUPqE/edit#slide=id.g27d1f2bcb60_0_44)
 [影片](https://www.youtube.com/watch?v=SkouS0krH98)
+### week7
+[PPT](https://docs.google.com/presentation/d/1VGS4z-40x0ZS8baC3PHP4TBLZn3S3YEe9owg4_vIZWc/edit#slide=id.g23dd2219a46_0_124)
 
 作業區
 -------------
