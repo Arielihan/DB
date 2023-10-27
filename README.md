@@ -27,6 +27,10 @@
 [影片](https://www.youtube.com/watch?v=SkouS0krH98)
 ### week7
 [PPT](https://docs.google.com/presentation/d/1VGS4z-40x0ZS8baC3PHP4TBLZn3S3YEe9owg4_vIZWc/edit#slide=id.g23dd2219a46_0_124)
+[影片](https://www.youtube.com/watch?v=ukF48qw2LM8)
+### week8
+[PPT](https://docs.google.com/presentation/d/1semHnB07DAbbwkl-4-LmuZL8DQDZ5t6zAA1Jbft-uuQ/edit)
+[影片](https://www.youtube.com/watch?v=xs1WvCHsegw)
 
 作業區
 -------------
@@ -35,6 +39,7 @@
 [HW2](https://youtu.be/YpIS8dT8Blo)
 [HW3(試錯版)](https://youtu.be/Tjrp12wYKkU)
 [HW3(成功版)](https://youtu.be/H5pCwzvXNrA)
+[HW4](https://youtu.be/XXO31ZK06IA)
 
 專題區
 -------------
